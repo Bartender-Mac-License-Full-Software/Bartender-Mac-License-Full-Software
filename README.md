@@ -1,0 +1,1 @@
+# Bartender-Mac-License-Full-Software
